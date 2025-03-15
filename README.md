@@ -2,7 +2,7 @@
 
 Sobre mi.
 
-Estudiante universitario UCAD
+Estudiante universitario de ingenieria en sistemas computacionales en la UCAD
 
 
 
